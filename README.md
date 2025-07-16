@@ -1,4 +1,4 @@
-## Hi there 👋
+![1000170024](https://github.com/user-attachments/assets/4221a1bc-4e8f-45ac-9d18-2aa28a13c335)
 
 <!--
 **paraphilic/paraphilic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
