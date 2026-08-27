@@ -1,4 +1,8 @@
-<img width="736" height="552" alt="113963" src="https://github.com/user-attachments/assets/d7b3dfd8-be5d-4a8c-9bcd-29d410f4a124" />
+hvy iwc
+
+ㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=lustangel&label=🤍&color=000000&style=for-the-badge)
+
+<img width="800" height="600" alt="134552" src="https://github.com/user-attachments/assets/62e08c12-b65c-4736-8280-29343c5df793" />
 
 
 
